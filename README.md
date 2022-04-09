@@ -1,0 +1,1 @@
+# Detyra2-AK_CPU-16bit
